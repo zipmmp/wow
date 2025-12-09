@@ -1,1 +1,1 @@
-# wow
+https://media.discordapp.net/attachments/1417970522083426385/1429522915149352970/chainsaw-man-csm.gif?ex=69390636&is=6937b4b6&hm=8254e39ea9f2ec3721e8a355767fd2a8bd41ba7596c9b4d7cd05b3c3c40e04fc&
